@@ -1,5 +1,5 @@
 # 💫 About Me:
-| Developer | Web Programmer | Pythoneer | Passionately learning more about A. I & related trends | Loves to Connect with people & Help the community |
+| Cybersecurity analyst | Web Programmer | Pythoneer | Passionately learning more about A. I & Cyber security related trends | Loves to Connect with people & Help the community |
 
 
 ## 🌐 Socials:
